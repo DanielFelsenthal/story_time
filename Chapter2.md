@@ -1,4 +1,6 @@
-As much as the onion wished for his family to find him, it was no use.
+The Onion is Not Found:
+
+As much as the onion wished for its family to find it, it was no use.
 The onion was not found.
 The onion began to cry from loneliness.
 What if he never found his family again?
